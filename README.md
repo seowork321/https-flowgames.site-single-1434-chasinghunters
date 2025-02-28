@@ -1,2 +1,2 @@
 # https-flowgames.site-single-1434-chasinghunters
-Defeat the bad guys and become a sharpshooter
+[Defeat](https://flowgames.site/single/1434/chasinghunters) the bad guys and become a sharpshooter
